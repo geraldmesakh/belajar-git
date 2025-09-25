@@ -1,1 +1,1 @@
-belajar semangat
+belajar sampai gacor
